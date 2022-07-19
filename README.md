@@ -1,2 +1,0 @@
-# pointshop.space
-pointshop.space
